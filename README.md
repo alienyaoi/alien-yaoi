@@ -1,6 +1,9 @@
 # alien-yaoi
 heeelllloooo (PLEASE OPEN! ✉️) 
 
+FUN THINGS I DO: i get rid of proshippers! (bad people in general) i find out my witness and gain evidence from other people!
+BAD PEOPLE CAUGHT : 2
+
 my name is cody and i have type 1 autism :3 
 
 fandoms im in : spooky month / scott pilgrim / south park / total drama island / my little pony / little miss fortune / papa louie / the owl house!!
