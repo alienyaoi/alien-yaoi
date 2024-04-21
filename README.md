@@ -1,7 +1,7 @@
 # alien-yaoi
 heeelllloooo (PLEASE OPEN! ✉️) 
 
-#1 noco lover #1 aletyler lover #1 malcody lover #1 trody lover #1 duntrent lover
+#1 noco lover #1 aletyler lover #1 malcody lover #1 trody lover #1 duntrent lover #1 trustin lover #1 duntrent lover
 
 my name is cody and i have type 1 autism :3 
 
