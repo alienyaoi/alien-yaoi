@@ -1,8 +1,7 @@
 # alien-yaoi
 heeelllloooo (PLEASE OPEN! ✉️) 
 
-FUN THINGS I DO: i get rid of proshippers! (bad people in general) i find out my witness and gain evidence from other people!
-BAD PEOPLE CAUGHT : 2
+#1 noco lover
 
 my name is cody and i have type 1 autism :3 
 
