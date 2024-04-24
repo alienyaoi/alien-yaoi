@@ -14,4 +14,5 @@ pls follow me on pinterest! @codybrahhh.
 thank you for defending me on july 14 2023. i will never forget that moment. thank you for carrying on something i couldn't. never give up. 
 
 "All he wanted in the world is to make everyone happy." -Drew R.I.P. Todd, Buster, and Sophie.
+"For years he was barking up the wrong tree, worried about his sins becoming too visible on my skin. She was always worried about the silly things, but me. And when he turned his back, I was the dog who bit his neck."
  ~ 💌 ~
