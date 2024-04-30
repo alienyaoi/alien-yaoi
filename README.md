@@ -5,6 +5,8 @@ heeelllloooo (PLEASE OPEN! ✉️)
 
 my name is cody and i have type 1 autism :3 
 
+DNI : P3d0s, Z00s, Pr0sh1ppers, L3sb0ys, Abl3ists. 
+
 fandoms im in : spooky month / scott pilgrim / south park / total drama island / my little pony / little miss fortune / papa louie / the owl house!!
 huge fan of total drama fan since 2019!! pls int favorite character is dj and cody!! 
 
