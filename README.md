@@ -3,9 +3,9 @@ heeelllloooo (PLEASE OPEN! ✉️)
 
 #1 noco lover #1 aletyler lover #1 malcody lover #1 trody lover #1 duntrent lover #1 trustin lover #1 duntrent lover
 
-my name is cody and i have type 1 autism :3 
+🤓 : "errmm...why do you ship noco...they have no chemistr-" "SHUT TYE FRRRREAAAAKMK UPPPP!!!" 
 
-DNI : P3d0s, Z00s, Pr0sh1ppers, L3sb0ys, Abl3ists. 
+my name is cody and i have type 1 autism :3 
 
 fandoms im in : spooky month / scott pilgrim / south park / total drama island / my little pony / little miss fortune / papa louie / the owl house!!
 huge fan of total drama fan since 2019!! pls int favorite character is dj and cody!! 
