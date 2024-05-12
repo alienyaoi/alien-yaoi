@@ -16,6 +16,5 @@ pls follow me on pinterest! @codybrahhh.
 thank you for defending me on july 14 2023. i will never forget that moment. thank you for carrying on something i couldn't. never give up. 
 ˚ ཐི⋆♱⋆ཋྀ ˚
 "All he wanted in the world is to make everyone happy." -Drew R.I.P. Todd, Buster, and Sophie.
-"For years he was barking up the wrong tree, worried about his sins becoming too visible on my skin. She was always worried about the silly things, but me. And when he turned his back, I was the dog who bit his neck." 𖤐ily milo𖤐 JUMPSCARE OF ROY!!!!! GOOOOOO!!!! 
-![1000007743](https://github.com/alienyaoi/alien-yaoi/assets/165535942/24d5f2e0-8bba-4a16-bc44-d46b0f90e7d7)
-
+"For years he was barking up the wrong tree, worried about his sins becoming too visible on my skin. She was always worried about the silly things, but me. And when he turned his back, I was the dog who bit his neck." 
+𖤐 ily my gf milo!! 𖤐
