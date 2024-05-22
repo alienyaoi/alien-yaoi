@@ -2,6 +2,8 @@
 heeelllloooo 
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
+#1 STEVE COBS HATER!!!!!!😡😡😡😡😡
+
 #1 noco lover #1 aletyler lover #1 malcody lover #1 trody lover #1 duntrent lover #1 trustin lover #1 alenoco lover #1 aleduncan lover
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
