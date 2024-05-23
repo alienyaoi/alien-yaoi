@@ -13,7 +13,7 @@ heeelllloooo
 my name is cody and i have the autism spectrum :3 
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
-fandoms im in : spooky month / scott pilgrim / south park / total drama island / inanimate insanity / my little pony / little miss fortune / papa louie / the owl house / diary of a wimpy kid / hfjONE
+fandoms im in : spooky month / scott pilgrim / south park / total drama island / inanimate insanity / my little pony / little miss fortune / papa louie / the owl house / diary of a wimpy kid / hfjONE / BURNER / discord emoji all stars
 huge fan of total drama fan since 2019!! pls int favorite character is dj and cody!! 
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
