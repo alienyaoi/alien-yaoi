@@ -1,8 +1,10 @@
 # alien-yaoi
-heeelllloooo 
+hello read me!
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
-#1 STEVE COBS HATER!!!!!!😡😡😡😡😡
+dni if ur a steve cobs kinnie /hj 
+dni if ur in the country balls fandom yall r weird.   
+dni if ur a proshipper/comshipper.
 
 #1 noco lover #1 aletyler lover #1 malcody lover #1 trody lover #1 duntrent lover #1 trustin lover #1 alenoco lover #1 aleduncan lover
 ˚ ཐི⋆♱⋆ཋྀ ˚
