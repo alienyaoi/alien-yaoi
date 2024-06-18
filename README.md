@@ -3,6 +3,7 @@
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
 ! if you've ever received threats from me, im sorry. im still trying to grow as a person, but sometimes people annoy me. i deeply apologize.
+fuck you leslie. you made me the person i am today. and it was all for nothing.
 
 . dniuf / dniuid if ur a teir 2 or teir 3 supporter. yall get on my last nerve. don't ask why or im gonna have some beef with u. 
 ! i have autism, im gonna be rude if ur rude. DEAL WITH IT. and dont hide me. 
