@@ -2,7 +2,7 @@
 . hello read me!
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
-if you sent me a nsfw, homophobic and a death threat kys pls!!! thanks!! ^_^ /srs. 
+im sorry leslie im sorry corey im sorry icra i just wanna end it
 
 ! if you've ever received threats from me, im sorry. im still trying to grow as a person, but sometimes people annoy me. i deeply apologize.
 fuck you leslie. you made me the person i am today. and it was all for nothing.
