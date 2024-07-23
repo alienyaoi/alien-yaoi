@@ -2,7 +2,8 @@
 . hello read me!
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
-im sorry leslie im sorry corey im sorry icra i just wanna end it
+im sorry leslie im sorry corey im sorry icra im sorry bryce i just wanna end it
+ill keep fighting . you put me here , but i don't care . keep your label or loose it . ill keep fighting for you or ill just loose it all . you have a heart in you , but sometimes people don't even want it in you . you made me have this label , im forced to keep it . ill be in heaven , waiting for you .
 
 ! if you've ever received threats from me, im sorry. im still trying to grow as a person, but sometimes people annoy me. i deeply apologize.
 fuck you leslie. you made me the person i am today. and it was all for nothing.
@@ -21,3 +22,4 @@ fuck you leslie. you made me the person i am today. and it was all for nothing.
 
 ! pls don't copy my skins!! thank u! ❤️
 14.06.23 thank you. im sorry. ❤️
+come back to me milo . im sorry . im fucking sorry bryce . id wish you know . 
