@@ -2,6 +2,8 @@
 . hello read me!
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
+https://docs.google.com/document/d/1dW-NCZrSzmUSMrhxEP5wMH4daEotMNFU-g2XbTppbvM/edit?usp=drivesdk
+
 im sorry leslie im sorry corey im sorry icra im sorry bryce i just wanna end it
 ill keep fighting . you put me here , but i don't care . keep your label or loose it . ill keep fighting for you or ill just loose it all . you have a heart in you , but sometimes people don't even want it in you . you made me have this label , im forced to keep it . ill be in heaven , waiting for you .
 
