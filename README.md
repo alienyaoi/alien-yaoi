@@ -2,6 +2,8 @@
 . hello read me!
 ˚ ཐི⋆♱⋆ཋྀ ˚
 
+a sincerest apology : https://docs.google.com/document/d/1LdGXuzZWJj_kQ3M7X40yPClw3bsrSOcZs9klh6KSmn4/edit?usp=drivesdk
+
 https://docs.google.com/document/d/1dW-NCZrSzmUSMrhxEP5wMH4daEotMNFU-g2XbTppbvM/edit?usp=drivesdk
 
 ougghhhh 
