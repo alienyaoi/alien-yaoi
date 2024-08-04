@@ -4,8 +4,6 @@
 
 a sincerest apology : https://docs.google.com/document/d/1LdGXuzZWJj_kQ3M7X40yPClw3bsrSOcZs9klh6KSmn4/edit?usp=drivesdk
 
-https://docs.google.com/document/d/1dW-NCZrSzmUSMrhxEP5wMH4daEotMNFU-g2XbTppbvM/edit?usp=drivesdk
-
 ougghhhh 
 
 ! if you've ever received threats from me, im sorry. im still trying to grow as a person, but sometimes people annoy me. i deeply apologize.
