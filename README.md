@@ -1,5 +1,7 @@
 hi, its me, alienyaoi
 
+i don't fw proshippers. 🙏
+
 mostly at osc area / docks / rating lines
 i will mostly switch between the same 2-4 skins so it's easy to spot me
 
