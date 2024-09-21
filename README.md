@@ -8,4 +8,3 @@ mostly at osc area / docks / rating lines
 i will mostly switch between the same 2-4 skins so it's easy to spot me
 
 follow cyrelsignature on pinterest as i am active on there, mostly not active on anything else (besides ponytown and roblox)
-i sent death threats to proshippers bcus i thought they were watermelons xD!! 
