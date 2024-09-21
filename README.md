@@ -7,4 +7,5 @@ i don't fw proshippers. lookin at you airypack shippers 🙏 doomed yaoi my ASS 
 mostly at osc area / docks / rating lines
 i will mostly switch between the same 2-4 skins so it's easy to spot me
 
-follow codybrahhh on pinterest as i am active on there, mostly not active on anything else (besides ponytown and roblox)
+follow cyrelsignature on pinterest as i am active on there, mostly not active on anything else (besides ponytown and roblox)
+i sent death threats to proshippers bcus i thought they were watermelons xD!! 
