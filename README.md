@@ -2,12 +2,6 @@ hi, its me, alienyaoi
 
 i don't fw proshippers. lookin at you airypack shippers 🙏 doomed yaoi my ASS bro...
 
-ships i hate ;-;
-silverloon (mostly because of fanart)
-any ship with bot (besides marshmallow and apple)
-any overall problematic ship ;-;;;;;
-more to come...i think i hate airypack (its obvious)
-
 "Why argue with these clowns if the circus is well at work?" 
 
 mostly at osc area / docks / rating lines
